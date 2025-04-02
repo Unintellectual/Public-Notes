@@ -1,0 +1,2 @@
+- Terror in resonance
+- Psycho pass
